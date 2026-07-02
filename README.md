@@ -1,0 +1,2 @@
+# impact_of_ai_on_human_mental_growth
+impact_of_ai_on_human_mental_growth
